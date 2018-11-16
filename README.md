@@ -1,1 +1,1 @@
-qualqyuer coida
+qualquer coida
